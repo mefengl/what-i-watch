@@ -7,4 +7,8 @@ https://www.youtube.com/watch?v=G1HqWIUSMGQ don't care about comma ai, just like
 
 11
 
-https://www.youtube.com/watch?v=FkNkSQ42jg4 yet another Elon's video
+https://www.youtube.com/watch?v=FkNkSQ42jg4 , yet another Elon's video
+
+12
+
+https://www.youtube.com/watch?v=uvb00oaa3k8 , known what's Kafka

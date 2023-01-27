@@ -24,3 +24,9 @@ https://www.youtube.com/watch?v=57OU18cogJI , `reduce the cost of energy`, `try 
 https://www.youtube.com/watch?v=ebjkD1Om4uw , it would have been way more enjoyable if I hadn't already seen those ideas on Twitter
 
 https://www.youtube.com/watch?v=OLdIPmE4dCs , yet another Elon's video, about gigafactory Nevada
+
+27
+
+https://www.youtube.com/watch?v=_Pxfo4rT3f8&t=2238s , 'price really matters'
+
+https://www.youtube.com/watch?v=VYJtb2YXae8 , cause the microphone is better, it can capture the imperfect voices in daily life

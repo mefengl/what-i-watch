@@ -30,3 +30,9 @@ https://www.youtube.com/watch?v=OLdIPmE4dCs , yet another Elon's video, about gi
 https://www.youtube.com/watch?v=_Pxfo4rT3f8&t=2238s , 'price really matters'
 
 https://www.youtube.com/watch?v=VYJtb2YXae8 , cause the microphone is better, it can capture the imperfect voices in daily life
+
+## 2023-02
+
+03
+
+https://www.youtube.com/watch?v=Z3_PwvvfxIU , see the power of media

@@ -36,3 +36,13 @@ https://www.youtube.com/watch?v=VYJtb2YXae8 , cause the microphone is better, it
 03
 
 https://www.youtube.com/watch?v=Z3_PwvvfxIU , see the power of media
+
+05
+
+https://www.youtube.com/watch?v=J6pyHVlXI7U , Arc is as beautiful as she
+
+https://www.youtube.com/watch?v=bOMQiMxh5Bc , the honesty of the engineer
+
+https://www.youtube.com/watch?v=eVda3zFLlhc , what a team
+
+https://www.youtube.com/watch?v=AKJfakEsgy0 , Mr.Beast's 7 years

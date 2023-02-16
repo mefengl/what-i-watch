@@ -56,3 +56,7 @@ https://www.bilibili.com/video/BV1ht411E7MQ/ , congratulation
 15
 
 https://www.youtube.com/watch?v=vrz5IOIGkBg , civilazations coropore too much
+
+16
+
+https://www.youtube.com/watch?v=biPlFWl64ws , remind me of the time when Jobs pulled that macbook air out

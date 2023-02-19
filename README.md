@@ -60,3 +60,7 @@ https://www.youtube.com/watch?v=vrz5IOIGkBg , civilazations coropore too much
 16
 
 https://www.youtube.com/watch?v=biPlFWl64ws , remind me of the time when Jobs pulled that macbook air out
+
+19
+
+https://www.youtube.com/watch?v=FPYl7nIKRbA , good video of Lvan

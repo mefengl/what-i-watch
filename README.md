@@ -64,3 +64,7 @@ https://www.youtube.com/watch?v=biPlFWl64ws , remind me of the time when Jobs pu
 19
 
 https://www.youtube.com/watch?v=FPYl7nIKRbA , good video of Lvan
+
+22
+
+https://research.runwayml.com/gen1 , good ideas will be able to be implemented

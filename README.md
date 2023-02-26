@@ -72,3 +72,7 @@ https://research.runwayml.com/gen1 , good ideas will be able to be implemented
 23
 
 https://www.youtube.com/watch?v=nKYeAhsWF70 , AI by hotkeys
+
+26
+
+https://www.youtube.com/watch?v=0e3GPea1Tyg , feel more real than squid game, though it's real

@@ -51,8 +51,6 @@ https://www.youtube.com/watch?v=AKJfakEsgy0 , Mr.Beast's 7 years
 
 https://www.bilibili.com/video/BV1ht411E7MQ/ , congratulation
 
-## 2023-03
-
 15
 
 https://www.youtube.com/watch?v=vrz5IOIGkBg , civilazations coropore too much
@@ -76,3 +74,9 @@ https://www.youtube.com/watch?v=nKYeAhsWF70 , AI by hotkeys
 26
 
 https://www.youtube.com/watch?v=0e3GPea1Tyg , feel more real than squid game, though it's real
+
+## 2023-03
+
+https://www.youtube.com/watch?v=CxKXJWf-WMg , amazing video about startup, will watch it again and again
+
+https://www.youtube.com/watch?v=iRwk9UajXFg , not that good, watched anyway

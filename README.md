@@ -80,3 +80,9 @@ https://www.youtube.com/watch?v=0e3GPea1Tyg , feel more real than squid game, th
 https://www.youtube.com/watch?v=CxKXJWf-WMg , amazing video about startup, will watch it again and again
 
 https://www.youtube.com/watch?v=iRwk9UajXFg , not that good, watched anyway
+
+## 2023-04
+
+https://www.youtube.com/shorts/J65BnmxHL8I , make death a part of life
+
+https://www.youtube.com/shorts/Dqj04dDDf14 , the idea of "count the number during watch anime" is just so unique

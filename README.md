@@ -86,3 +86,5 @@ https://www.youtube.com/watch?v=iRwk9UajXFg , not that good, watched anyway
 https://www.youtube.com/shorts/J65BnmxHL8I , make death a part of life
 
 https://www.youtube.com/shorts/Dqj04dDDf14 , the idea of "count the number during watch anime" is just so unique
+
+https://www.youtube.com/watch?v=tVWWp1PqDus , funny

@@ -88,3 +88,7 @@ https://www.youtube.com/shorts/J65BnmxHL8I , make death a part of life
 https://www.youtube.com/shorts/Dqj04dDDf14 , the idea of "count the number during watch anime" is just so unique
 
 https://www.youtube.com/watch?v=tVWWp1PqDus , funny
+
+## 2023-05
+
+https://www.youtube.com/watch?v=y8OI53Xylfo , talk of CEO of Nvida

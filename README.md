@@ -91,4 +91,6 @@ https://www.youtube.com/watch?v=tVWWp1PqDus , funny
 
 ## 2023-05
 
+https://www.youtube.com/watch?v=6sUwRiIncKU , a conversation with a lot of information, and also quite exciting
+
 https://www.youtube.com/watch?v=y8OI53Xylfo , talk of CEO of Nvida

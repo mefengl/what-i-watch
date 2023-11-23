@@ -94,3 +94,7 @@ https://www.youtube.com/watch?v=tVWWp1PqDus , funny
 https://www.youtube.com/watch?v=6sUwRiIncKU , a conversation with a lot of information, and also quite exciting
 
 https://www.youtube.com/watch?v=y8OI53Xylfo , talk of CEO of Nvida
+
+## 2023-11
+
+https://www.youtube.com/watch?v=Naggi7ufrLc , "Chaos is a ladder."

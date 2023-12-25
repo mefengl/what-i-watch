@@ -98,3 +98,7 @@ https://www.youtube.com/watch?v=y8OI53Xylfo , talk of CEO of Nvida
 ## 2023-11
 
 https://www.youtube.com/watch?v=Naggi7ufrLc , "Chaos is a ladder."
+
+## 2023-12
+
+https://www.youtube.com/watch?v=CLkxRnRQtDE , that's why tailwind and tailwind ui is kind of elegant

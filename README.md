@@ -102,3 +102,7 @@ https://www.youtube.com/watch?v=Naggi7ufrLc , "Chaos is a ladder."
 ## 2023-12
 
 https://www.youtube.com/watch?v=CLkxRnRQtDE , that's why tailwind and tailwind ui is kind of elegant
+
+## 2024-01
+
+https://www.youtube.com/watch?v=BqYXbZJGvac , "What If MrBeast Ran for President?"

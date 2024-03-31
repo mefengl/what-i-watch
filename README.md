@@ -106,3 +106,13 @@ https://www.youtube.com/watch?v=CLkxRnRQtDE , that's why tailwind and tailwind u
 ## 2024-01
 
 https://www.youtube.com/watch?v=BqYXbZJGvac , "What If MrBeast Ran for President?"
+
+## 2024-03
+
+https://www.youtube.com/watch?v=KPe2D2J-zU0 , The React Native tech leader's talk was reminiscent of DHH.
+
+https://www.youtube.com/watch?v=Q7Phkq0BUXM , one month in a day
+
+## 2024-04
+
+https://www.youtube.com/watch?v=zROpI35swtg , vue opt in reactivity

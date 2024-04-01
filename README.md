@@ -116,3 +116,5 @@ https://www.youtube.com/watch?v=Q7Phkq0BUXM , one month in a day
 ## 2024-04
 
 https://www.youtube.com/watch?v=zROpI35swtg , vue opt in reactivity
+
+https://www.youtube.com/watch?v=Ehjw-Cw_OeY , Provide an update on Dan's current situation.

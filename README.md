@@ -1,5 +1,9 @@
 # what-i-watch
 
+## weekly
+
+https://www.youtube.com/watch?v=M-ZH3psUbfU
+
 ## 2023-01
 10
 

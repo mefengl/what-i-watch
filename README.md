@@ -124,3 +124,5 @@ https://www.youtube.com/watch?v=zROpI35swtg , vue opt in reactivity
 https://www.youtube.com/watch?v=Ehjw-Cw_OeY , Provide an update on Dan's current situation.
 
 https://www.youtube.com/watch?v=M-ZH3psUbfU , Forgotten suggestions from Elon
+
+https://www.youtube.com/watch?v=hhsfjBpKiTw , A very shocking conversation, for me, even has a bit of tragic significance.

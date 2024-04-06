@@ -128,3 +128,5 @@ https://www.youtube.com/watch?v=M-ZH3psUbfU , Forgotten suggestions from Elon
 https://www.youtube.com/watch?v=hhsfjBpKiTw , A very shocking conversation, for me, even has a bit of tragic significance.
 
 https://www.youtube.com/watch?v=uo0LgCXljYg , it's beautiful
+
+https://www.youtube.com/watch?v=Z20nUdAUGmM , nice expo-router tutorial

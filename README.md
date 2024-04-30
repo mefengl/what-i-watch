@@ -132,3 +132,5 @@ https://www.youtube.com/watch?v=uo0LgCXljYg , it's beautiful
 https://www.youtube.com/watch?v=Z20nUdAUGmM , nice expo-router tutorial
 
 https://www.youtube.com/watch?v=NHNb--ISlig , another nice migration tutorial from react-navigation to expo-router
+
+https://www.youtube.com/watch?v=pkotufZchjE , the future of github copilot

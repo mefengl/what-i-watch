@@ -135,4 +135,10 @@ https://www.youtube.com/watch?v=NHNb--ISlig , another nice migration tutorial fr
 
 https://www.youtube.com/watch?v=pkotufZchjE , the future of github copilot
 
+## 2024-05
+
 https://www.bilibili.com/video/BV1Bz421C7mg , Recently favorite documentary director
+
+https://www.youtube.com/watch?v=2May2jQ0u48 , It's unfortunate how well it fits some people
+
+https://oneminutepark.tv , "May 18, from 17:09–17:10 at Wildpark Schwarze Berge, Rosengarten, Germany"

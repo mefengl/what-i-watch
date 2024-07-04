@@ -5,6 +5,7 @@
 https://www.youtube.com/watch?v=M-ZH3psUbfU
 
 ## 2023-01
+
 10
 
 https://www.youtube.com/watch?v=G1HqWIUSMGQ don't care about comma ai, just like to watch George Hotz's video
@@ -141,4 +142,10 @@ https://www.bilibili.com/video/BV1Bz421C7mg , Recently favorite documentary dire
 
 https://www.youtube.com/watch?v=2May2jQ0u48 , It's unfortunate how well it fits some people
 
+## 2024-06
+
 https://oneminutepark.tv , "May 18, from 17:09–17:10 at Wildpark Schwarze Berge, Rosengarten, Germany"
+
+## 2024-07
+
+https://www.youtube.com/watch?v=uUt72R4wu3I , Civilization is more important than culture

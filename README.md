@@ -149,3 +149,5 @@ https://oneminutepark.tv , "May 18, from 17:09–17:10 at Wildpark Schwarze Berg
 ## 2024-07
 
 https://www.youtube.com/watch?v=uUt72R4wu3I , Civilization is more important than culture
+
+https://www.youtube.com/watch?v=mG1Lv-RWds8 , how to package swift libraries and transform them into react native libraries

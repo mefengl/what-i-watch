@@ -153,3 +153,7 @@ https://www.youtube.com/watch?v=uUt72R4wu3I , Civilization is more important tha
 https://www.youtube.com/watch?v=mG1Lv-RWds8 , how to package swift libraries and transform them into react native libraries
 
 https://www.youtube.com/watch?v=kGDqLeRuyCA , this is lee kuan yew's speech on handling the strike, very charming
+
+https://www.youtube.com/watch?v=4WCTGycBceg , Linus's attitude towards ai is optimistic but not caught up in the hype
+
+https://www.youtube.com/watch?v=CGCwu2ovbAo , it's amazing to see MrBeast's insightful commentary on the video he made

@@ -157,3 +157,5 @@ https://www.youtube.com/watch?v=kGDqLeRuyCA , this is lee kuan yew's speech on h
 https://www.youtube.com/watch?v=4WCTGycBceg , Linus's attitude towards ai is optimistic but not caught up in the hype
 
 https://www.youtube.com/watch?v=CGCwu2ovbAo , it's amazing to see MrBeast's insightful commentary on the video he made
+
+https://www.youtube.com/watch?v=MASAqbRMnaM , it really inspires me to master every tool and use the right tool to do the right thing

@@ -159,3 +159,5 @@ https://www.youtube.com/watch?v=4WCTGycBceg , Linus's attitude towards ai is opt
 https://www.youtube.com/watch?v=CGCwu2ovbAo , it's amazing to see MrBeast's insightful commentary on the video he made
 
 https://www.youtube.com/watch?v=MASAqbRMnaM , it really inspires me to master every tool and use the right tool to do the right thing
+
+https://www.youtube.com/watch?v=e-gwvmhyU7A , engineering's attitude towards ai searching

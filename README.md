@@ -161,3 +161,5 @@ https://www.youtube.com/watch?v=CGCwu2ovbAo , it's amazing to see MrBeast's insi
 https://www.youtube.com/watch?v=MASAqbRMnaM , it really inspires me to master every tool and use the right tool to do the right thing
 
 https://www.youtube.com/watch?v=e-gwvmhyU7A , engineering's attitude towards ai searching
+
+https://www.youtube.com/watch?v=ozI4V_29fj4 , what a wonderful video about the server and client in react

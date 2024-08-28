@@ -167,3 +167,7 @@ https://www.youtube.com/watch?v=ozI4V_29fj4 , what a wonderful video about the s
 https://www.youtube.com/watch?v=sl-QUd3YiqA , react native is more react than react
 
 https://www.youtube.com/watch?v=4IWCqHQclHU , I read his articles a lot; it's inspiring to see how he writes
+
+## 2024-08
+
+https://www.youtube.com/watch?v=Ux5AiKmra-E , neuralink's progress is amazing, super informative at the Q&A session

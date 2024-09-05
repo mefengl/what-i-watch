@@ -171,3 +171,7 @@ https://www.youtube.com/watch?v=4IWCqHQclHU , I read his articles a lot; it's in
 ## 2024-08
 
 https://www.youtube.com/watch?v=Ux5AiKmra-E , neuralink's progress is amazing, super informative at the Q&A session
+
+## 2024-09
+
+https://www.youtube.com/watch?v=hM_h0UA7upI , glad to hear Andrew's latest thoughts on ai

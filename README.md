@@ -175,3 +175,5 @@ https://www.youtube.com/watch?v=Ux5AiKmra-E , neuralink's progress is amazing, s
 ## 2024-09
 
 https://www.youtube.com/watch?v=hM_h0UA7upI , glad to hear Andrew's latest thoughts on ai
+
+https://www.youtube.com/watch?v=FhJfm-kzopc , a real talk about the creator of Tailwind CSS

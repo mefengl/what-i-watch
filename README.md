@@ -181,3 +181,5 @@ https://www.youtube.com/watch?v=FhJfm-kzopc , a real talk about the creator of t
 https://www.youtube.com/watch?v=34wmGmbf51U , kanye told me to learn as much as I can. I listened.
 
 https://www.youtube.com/watch?v=9TxtTF_dUHQ , classic kanye and elon talk, though it did not happen in this timeline
+
+https://www.youtube.com/watch?v=LJaicOI7mwg , this one is about kanye and kim's house, but it is more about house design than real living, interesting though. I will continue to find every video about kanye and watch them, it's a way to learn for me. I used to watch every video about elon, but didn't log them at that time

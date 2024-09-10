@@ -195,3 +195,5 @@ https://www.youtube.com/watch?v=Z_mk_u24tP0 , fresh talk in 2024, kanye selling 
 https://www.youtube.com/watch?v=fey9jhhk6lg , dhh's passion is so encouraging
 
 https://www.youtube.com/watch?v=0rlatwbnvmw , dhh's views on sqlite. he thinks it's good for development and good from a philosophical view that 3 people can maintain it, and it can be used by millions of people. At the end he talk about don't lose the ablitity to start from scratch is also very inspiring
+
+https://www.youtube.com/watch?v=eJYbXEaZD_k , "what's the simplest version to get you much further much closer to complete and final without having to do anywhere near as much work as the final like perfect version would be"

@@ -4,6 +4,10 @@
 
 https://www.youtube.com/watch?v=M-ZH3psUbfU
 
+## Monthly
+
+https://www.youtube.com/watch?v=0rlatwbnvmw
+
 ## 2023-01
 
 10

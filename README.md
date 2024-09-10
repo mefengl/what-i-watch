@@ -187,3 +187,7 @@ https://www.youtube.com/watch?v=LJaicOI7mwg , this one is about kanye and kim's 
 https://www.youtube.com/watch?v=9HiT3b-FJ_A , cool video about yeezy campus in wyoming
 
 https://www.youtube.com/watch?v=Z_mk_u24tP0 , fresh talk in 2024, kanye selling his album straight to fans is a big deal
+
+https://www.youtube.com/watch?v=fey9jhhk6lg , dhh's passion is so encouraging
+
+https://www.youtube.com/watch?v=0rlatwbnvmw , dhh's views on sqlite. he thinks it's good for development and good from a philosophical view that 3 people can maintain it, and it can be used by millions of people

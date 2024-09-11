@@ -199,3 +199,5 @@ https://www.youtube.com/watch?v=0rlatwbnvmw , dhh's views on sqlite. he thinks i
 https://www.youtube.com/watch?v=eJYbXEaZD_k , "what's the simplest version to get you much further much closer to complete and final without having to do anywhere near as much work as the final like perfect version would be"
 
 https://www.youtube.com/watch?v=pSFvOUswFwA , three major changes before it is great
+
+https://www.youtube.com/watch?v=tWduT9ygUQ4 , use common tech, don't use the oldest tech, just the tech that is used in every field; about learning "who do you identify as the ones in your industry or domain that you want to learn from and how can you just clone what it is that they're doing with no ego"

@@ -201,3 +201,5 @@ https://www.youtube.com/watch?v=eJYbXEaZD_k , "what's the simplest version to ge
 https://www.youtube.com/watch?v=pSFvOUswFwA , three major changes before it is great
 
 https://www.youtube.com/watch?v=tWduT9ygUQ4 , use common tech, don't use the oldest tech, just the tech that is used in every field; about learning "who do you identify as the ones in your industry or domain that you want to learn from and how can you just clone what it is that they're doing with no ego"
+
+https://www.youtube.com/watch?v=UaWECi2Fmvk , build trust to sell with blog posts, podcasts, and videos

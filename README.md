@@ -205,3 +205,5 @@ https://www.youtube.com/watch?v=tWduT9ygUQ4 , use common tech, don't use the old
 https://www.youtube.com/watch?v=UaWECi2Fmvk , build trust to sell with blog posts, podcasts, and videos
 
 https://www.youtube.com/watch?v=syrunzr9fbk , peter thiel is great because he speaks his mind
+
+https://www.youtube.com/watch?v=bNewfkhhwMo, it's a speech taking risks, very interesting

@@ -206,4 +206,6 @@ https://www.youtube.com/watch?v=UaWECi2Fmvk , build trust to sell with blog post
 
 https://www.youtube.com/watch?v=syrunzr9fbk , peter thiel is great because he speaks his mind
 
-https://www.youtube.com/watch?v=bNewfkhhwMo, it's a speech taking risks, very interesting
+https://www.youtube.com/watch?v=bNewfkhhwMo , it's a speech by peter thiel taking risks, very interesting
+
+https://www.youtube.com/watch?v=bJQj1uKtnus , "cult of done manifesto"

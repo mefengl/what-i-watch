@@ -209,3 +209,5 @@ https://www.youtube.com/watch?v=syrunzr9fbk , peter thiel is great because he sp
 https://www.youtube.com/watch?v=bNewfkhhwMo , it's a speech by peter thiel taking risks, very interesting
 
 https://www.youtube.com/watch?v=bJQj1uKtnus , "cult of done manifesto"
+
+https://www.youtube.com/watch?v=Z3xPIYHKSoI , the fast way to build, is that the product can be done, so you can pay full attention to the next thing

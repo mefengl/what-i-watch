@@ -211,3 +211,5 @@ https://www.youtube.com/watch?v=bNewfkhhwMo , it's a speech by peter thiel takin
 https://www.youtube.com/watch?v=bJQj1uKtnus , "cult of done manifesto"
 
 https://www.youtube.com/watch?v=Z3xPIYHKSoI , the fast way to build, is that the product can be done, so you can pay full attention to the next thing
+
+https://www.youtube.com/watch?v=-cEn_83zRFw , amazing web invention, glad to see some fresh ideas on the web

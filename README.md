@@ -216,4 +216,6 @@ https://www.youtube.com/watch?v=-cEn_83zRFw , amazing web invention, glad to see
 
 ## 2024-10
 
+https://www.youtube.com/watch?v=wQA8vi9z5cU , I like videos that share many good things
+
 https://www.youtube.com/watch?v=aYeMOVy6V3A , "creative development" is a good concept

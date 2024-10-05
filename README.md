@@ -219,3 +219,5 @@ https://www.youtube.com/watch?v=-cEn_83zRFw , amazing web invention, glad to see
 https://www.youtube.com/watch?v=wQA8vi9z5cU , I like videos that share many good things
 
 https://www.youtube.com/watch?v=aYeMOVy6V3A , "creative development" is a good concept
+
+https://www.youtube.com/watch?v=xL1MOOD5Ox8 , "anti-startup" is a good concept

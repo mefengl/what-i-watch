@@ -221,3 +221,5 @@ https://www.youtube.com/watch?v=wQA8vi9z5cU , I like videos that share many good
 https://www.youtube.com/watch?v=aYeMOVy6V3A , "creative development" is a good concept
 
 https://www.youtube.com/watch?v=xL1MOOD5Ox8 , "anti-startup" is a good concept
+
+https://www.youtube.com/watch?v=zPBbHu-BKpQ, very inspiring about code and culture

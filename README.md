@@ -225,3 +225,5 @@ https://www.youtube.com/watch?v=xL1MOOD5Ox8 , "anti-startup" is a good concept
 https://www.youtube.com/watch?v=zPBbHu-BKpQ, very inspiring about code and culture
 
 https://www.tiktok.com/@molsonhart/video/7419307186062380330 , the point about the other 'next China' in this video is very interesting
+
+https://www.youtube.com/watch?v=CIFSQtDDCj8 , interesting to see an american seller's view on amazon

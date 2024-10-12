@@ -229,3 +229,5 @@ https://www.tiktok.com/@molsonhart/video/7419307186062380330 , the point about t
 https://www.youtube.com/watch?v=CIFSQtDDCj8 , interesting to see an american seller's view on amazon
 
 https://www.youtube.com/watch?v=L824lZSUzAc , through others eyes, we can see opportunities around us
+
+https://www.bilibili.com/video/BV1sGxfecEZS , young man in China... with much subculture and talent

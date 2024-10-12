@@ -227,3 +227,5 @@ https://www.youtube.com/watch?v=zPBbHu-BKpQ, very inspiring about code and cultu
 https://www.tiktok.com/@molsonhart/video/7419307186062380330 , the point about the other 'next China' in this video is very interesting
 
 https://www.youtube.com/watch?v=CIFSQtDDCj8 , interesting to see an american seller's view on amazon
+
+https://www.youtube.com/watch?v=L824lZSUzAc , through others eyes, we can see opportunities around us

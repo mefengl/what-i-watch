@@ -231,3 +231,5 @@ https://www.youtube.com/watch?v=CIFSQtDDCj8 , interesting to see an american sel
 https://www.youtube.com/watch?v=L824lZSUzAc , through others eyes, we can see opportunities around us
 
 https://www.bilibili.com/video/BV1sGxfecEZS , young man in China... with much subculture and talent
+
+https://www.youtube.com/watch?v=N31u-_cj2aQ , the official account's talk with the gamescience founder is quite fun

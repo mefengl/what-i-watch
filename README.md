@@ -233,3 +233,5 @@ https://www.youtube.com/watch?v=L824lZSUzAc , through others eyes, we can see op
 https://www.bilibili.com/video/BV1sGxfecEZS , young man in China... with much subculture and talent
 
 https://www.youtube.com/watch?v=N31u-_cj2aQ , the official account's talk with the gamescience founder is quite fun
+
+https://www.youtube.com/watch?v=dwUB89o4dI0 , go to the west

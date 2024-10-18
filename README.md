@@ -235,3 +235,5 @@ https://www.bilibili.com/video/BV1sGxfecEZS , young man in China... with much su
 https://www.youtube.com/watch?v=N31u-_cj2aQ , the official account's talk with the gamescience founder is quite fun
 
 https://www.youtube.com/watch?v=dwUB89o4dI0 , go to the west
+
+https://www.youtube.com/watch?v=UgZpb-v2jm8 ,  a good rebuttal to the "green and natural" viewpoint

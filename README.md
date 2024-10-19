@@ -237,3 +237,5 @@ https://www.youtube.com/watch?v=N31u-_cj2aQ , the official account's talk with t
 https://www.youtube.com/watch?v=dwUB89o4dI0 , go to the west
 
 https://www.youtube.com/watch?v=UgZpb-v2jm8 ,  a good rebuttal to the "green and natural" viewpoint
+
+https://www.youtube.com/watch?v=wawMjJUCMVw , charismatic scientist

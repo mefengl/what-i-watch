@@ -241,3 +241,5 @@ https://www.youtube.com/watch?v=UgZpb-v2jm8 ,  a good rebuttal to the "green an
 https://www.youtube.com/watch?v=wawMjJUCMVw , charismatic scientist
 
 https://www.youtube.com/watch?v=wYeVne3aRow , nice video explaining solid cache's benifits and ideas behind it
+
+https://www.youtube.com/watch?v=Gm0t-kAsHuY , always so inspiring

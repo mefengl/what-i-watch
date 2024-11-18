@@ -243,3 +243,7 @@ https://www.youtube.com/watch?v=wawMjJUCMVw , charismatic scientist
 https://www.youtube.com/watch?v=wYeVne3aRow , nice video explaining solid cache's benifits and ideas behind it
 
 https://www.youtube.com/watch?v=Gm0t-kAsHuY , always so inspiring
+
+## 2024-11
+
+https://www.youtube.com/watch?v=a42key59cZQ , known gwern

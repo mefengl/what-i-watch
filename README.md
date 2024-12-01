@@ -259,3 +259,5 @@ https://www.youtube.com/watch?v=i3RJJaltd9c , scp eating the internet
 ## 2024-12
 
 https://www.youtube.com/watch?v=ye8MOfxD5nU , known Marc Andreessen
+
+https://www.youtube.com/watch?v=9cpTSlYRv48 , a great game montage shows the beauty and emotional impact of the game

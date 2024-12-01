@@ -255,3 +255,7 @@ https://www.youtube.com/watch?v=_JhNGvTKNU4 , fear of space
 https://www.youtube.com/watch?v=5eqRuVp65eY , what does the scale line means
 
 https://www.youtube.com/watch?v=i3RJJaltd9c , scp eating the internet
+
+## 2024-12
+
+https://www.youtube.com/watch?v=ye8MOfxD5nU , known Marc Andreessen

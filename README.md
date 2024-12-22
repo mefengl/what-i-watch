@@ -273,3 +273,5 @@ https://www.youtube.com/watch?v=YYD3aZatWRo , hotz's factorio speedrun
 https://www.youtube.com/watch?v=J8FdIbUq4SI , xqc's factorio speedrun is so funny, spaghetti can somehow works pretty well
 
 https://www.youtube.com/watch?v=79T4Gp0RlfY , fastest factorio speedrun give me so much inspirition
+
+https://www.youtube.com/watch?v=fP-371MN0Ck , showed me again why learning from the ground up matters

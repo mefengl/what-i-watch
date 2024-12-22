@@ -267,3 +267,9 @@ https://www.youtube.com/watch?v=ugvHCXCOmm4 , good to see the latest news about 
 https://www.youtube.com/watch?v=8NLzc9kobDk , known milei
 
 secret Level episode 5 - Warhammer 40,000 , it's amazing
+
+https://www.youtube.com/watch?v=YYD3aZatWRo , hotz's factorio speedrun
+
+https://www.youtube.com/watch?v=J8FdIbUq4SI , xqc's factorio speedrun is so funny, spaghetti can somehow works pretty well
+
+https://www.youtube.com/watch?v=79T4Gp0RlfY , fastest factorio speedrun give me so much inspirition

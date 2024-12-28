@@ -277,3 +277,7 @@ https://www.youtube.com/watch?v=79T4Gp0RlfY , fastest factorio speedrun give me 
 https://www.youtube.com/watch?v=fP-371MN0Ck , showed me again why learning from the ground up matters
 
 https://www.youtube.com/watch?v=beLYaMgwObM , as good as the ballet in the runaway video
+
+https://www.youtube.com/watch?v=Gv2I7qTux7g , known zig
+
+https://www.youtube.com/watch?v=2otjrTzRfVk , version control can be easy with good tools

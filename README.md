@@ -281,3 +281,5 @@ https://www.youtube.com/watch?v=beLYaMgwObM , as good as the ballet in the runaw
 https://www.youtube.com/watch?v=Gv2I7qTux7g , known zig
 
 https://www.youtube.com/watch?v=2otjrTzRfVk , version control can be easy with good tools
+
+https://www.youtube.com/watch?v=Em9CPUK_1h0 , what makes a game fun, and it's looks good

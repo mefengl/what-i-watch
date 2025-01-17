@@ -283,3 +283,9 @@ https://www.youtube.com/watch?v=Gv2I7qTux7g , known zig
 https://www.youtube.com/watch?v=2otjrTzRfVk , version control can be easy with good tools
 
 https://www.youtube.com/watch?v=Em9CPUK_1h0 , what makes a game fun, and it's looks good
+
+2025-01
+
+https://www.youtube.com/watch?v=1XXnz44-Ky4 , though I already know this stuff, I still need to remind myself often so I don't forget
+
+https://www.youtube.com/watch?v=dMqWTkgDt6A , Nintendo Sound Clock, kind of want it. Let the clock know my movements in bed are inspiring

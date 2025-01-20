@@ -289,3 +289,5 @@ https://www.youtube.com/watch?v=Em9CPUK_1h0 , what makes a game fun, and it's lo
 https://www.youtube.com/watch?v=1XXnz44-Ky4 , though I already know this stuff, I still need to remind myself often so I don't forget
 
 https://www.youtube.com/watch?v=dMqWTkgDt6A , Nintendo Sound Clock, kind of want it. Let the clock know my movements in bed are inspiring
+
+https://www.youtube.com/watch?v=2u6HTG8LuXQ , Nintendo's game design ideas

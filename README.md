@@ -291,3 +291,8 @@ https://www.youtube.com/watch?v=1XXnz44-Ky4 , though I already know this stuff, 
 https://www.youtube.com/watch?v=dMqWTkgDt6A , Nintendo Sound Clock, kind of want it. Let the clock know my movements in bed are inspiring
 
 https://www.youtube.com/watch?v=2u6HTG8LuXQ , Nintendo's game design ideas
+
+https://www.youtube.com/watch?v=4PymccvinIo
+https://www.youtube.com/watch?v=AuHqwQsf64o
+
+https://www.bilibili.com/video/BV1WJfzYzEGM , makes me want to watch her movie

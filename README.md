@@ -292,7 +292,7 @@ https://www.youtube.com/watch?v=dMqWTkgDt6A , Nintendo Sound Clock, kind of want
 
 https://www.youtube.com/watch?v=2u6HTG8LuXQ , Nintendo's game design ideas
 
-https://www.youtube.com/watch?v=4PymccvinIo
-https://www.youtube.com/watch?v=AuHqwQsf64o
+https://www.youtube.com/watch?v=4PymccvinIo , good tanstack start video
+https://www.youtube.com/watch?v=AuHqwQsf64o , same
 
 https://www.bilibili.com/video/BV1WJfzYzEGM , makes me want to watch her movie

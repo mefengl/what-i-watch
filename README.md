@@ -284,7 +284,7 @@ https://www.youtube.com/watch?v=2otjrTzRfVk , version control can be easy with g
 
 https://www.youtube.com/watch?v=Em9CPUK_1h0 , what makes a game fun, and it's looks good
 
-2025-01
+## 2025-01
 
 https://www.youtube.com/watch?v=1XXnz44-Ky4 , though I already know this stuff, I still need to remind myself often so I don't forget
 
@@ -296,3 +296,7 @@ https://www.youtube.com/watch?v=4PymccvinIo , good tanstack start video
 https://www.youtube.com/watch?v=AuHqwQsf64o , same
 
 https://www.bilibili.com/video/BV1WJfzYzEGM , makes me want to watch her movie
+
+## 2025-02
+
+https://www.youtube.com/watch?v=KASpfjr5wGQ, really skilled for its kind

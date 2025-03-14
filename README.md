@@ -300,3 +300,5 @@ https://www.bilibili.com/video/BV1WJfzYzEGM , makes me want to watch her movie
 ## 2025-02
 
 https://www.youtube.com/watch?v=KASpfjr5wGQ, really skilled for its kind
+
+https://www.youtube.com/watch?v=dujnjw_s8bY , known quentin

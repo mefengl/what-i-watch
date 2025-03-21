@@ -304,3 +304,5 @@ https://www.youtube.com/watch?v=KASpfjr5wGQ, really skilled for its kind
 ## 2025-03
 
 https://www.youtube.com/watch?v=dujnjw_s8bY , known quentin
+
+https://www.youtube.com/watch?v=QGJysv_Qzkw , reminds me of the old days when i watched every elon video

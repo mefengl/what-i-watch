@@ -306,3 +306,7 @@ https://www.youtube.com/watch?v=KASpfjr5wGQ, really skilled for its kind
 https://www.youtube.com/watch?v=dujnjw_s8bY , known quentin
 
 https://www.youtube.com/watch?v=QGJysv_Qzkw , reminds me of the old days when i watched every elon video
+
+## 2025-04
+
+https://www.youtube.com/watch?v=JeNS1ZNHQs8 , if your daily coding looks like this, that's somehow a good thing

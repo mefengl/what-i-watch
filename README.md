@@ -310,3 +310,5 @@ https://www.youtube.com/watch?v=QGJysv_Qzkw , reminds me of the old days when i 
 ## 2025-04
 
 https://www.youtube.com/watch?v=JeNS1ZNHQs8 , if your daily coding looks like this, that's somehow a good thing
+
+https://www.youtube.com/watch?v=7Qe2rzT0hZ8 , the quality of this video, the comments below it, so touching...

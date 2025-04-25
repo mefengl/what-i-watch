@@ -314,3 +314,5 @@ https://www.youtube.com/watch?v=JeNS1ZNHQs8 , if your daily coding looks like th
 https://www.youtube.com/watch?v=7Qe2rzT0hZ8 , the quality of this video, the comments below it, so touching...
 
 https://www.youtube.com/watch?v=v2q3yPwEo5w , gives a lot of new information about 2020s peter thiel
+
+https://www.youtube.com/watch?v=Ha_cHQxGFMI , explaned a lot of things about ali g and borat

@@ -316,3 +316,5 @@ https://www.youtube.com/watch?v=7Qe2rzT0hZ8 , the quality of this video, the com
 https://www.youtube.com/watch?v=v2q3yPwEo5w , gives a lot of new information about 2020s peter thiel
 
 https://www.youtube.com/watch?v=Ha_cHQxGFMI , explaned a lot of things about ali g and borat
+
+https://www.youtube.com/watch?v=9iqn1HhFJ6c , captures ilya charm in a strange way

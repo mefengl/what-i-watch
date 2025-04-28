@@ -320,3 +320,5 @@ https://www.youtube.com/watch?v=Ha_cHQxGFMI , explaned a lot of things about ali
 https://www.youtube.com/watch?v=9iqn1HhFJ6c , captures ilya charm in a strange way
 
 https://www.youtube.com/watch?v=mM0cXyhN45c , the things about being and finding a great partner
+
+https://www.youtube.com/watch?v=FjrJ2DJN_pA , it's quite surprising that i almost forgot how amazing mrbeast is

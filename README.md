@@ -322,3 +322,7 @@ https://www.youtube.com/watch?v=9iqn1HhFJ6c , captures ilya charm in a strange w
 https://www.youtube.com/watch?v=mM0cXyhN45c , the things about being and finding a great partner
 
 https://www.youtube.com/watch?v=FjrJ2DJN_pA , it's quite surprising that i almost forgot how amazing mrbeast is
+
+## 2025-05
+
+https://www.youtube.com/watch?v=_ON1tS4UHzY , i began to understand that it's expensive, and it may still be worth it, especially for the olympics player

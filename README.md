@@ -328,3 +328,5 @@ https://www.youtube.com/watch?v=FjrJ2DJN_pA , it's quite surprising that i almos
 https://www.youtube.com/watch?v=_ON1tS4UHzY , i began to understand that it's expensive, and it may still be worth it, especially for the olympics player
 
 https://www.youtube.com/watch?v=YtVdyo6dkTE , so good video about dota2
+
+https://www.youtube.com/watch?v=M9LeemqrwGI , build the same tool, think the same way

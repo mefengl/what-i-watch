@@ -326,3 +326,5 @@ https://www.youtube.com/watch?v=FjrJ2DJN_pA , it's quite surprising that i almos
 ## 2025-05
 
 https://www.youtube.com/watch?v=_ON1tS4UHzY , i began to understand that it's expensive, and it may still be worth it, especially for the olympics player
+
+https://www.youtube.com/watch?v=YtVdyo6dkTE , so good video about dota2

@@ -330,3 +330,5 @@ https://www.youtube.com/watch?v=_ON1tS4UHzY , i began to understand that it's ex
 https://www.youtube.com/watch?v=YtVdyo6dkTE , so good video about dota2
 
 https://www.youtube.com/watch?v=M9LeemqrwGI , build the same tool, think the same way
+
+https://www.youtube.com/watch?v=3WPJJ8Kkwsw , wanna have something similar for myself

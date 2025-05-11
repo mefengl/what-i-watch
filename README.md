@@ -334,3 +334,5 @@ https://www.youtube.com/watch?v=M9LeemqrwGI , build the same tool, think the sam
 https://www.youtube.com/watch?v=3WPJJ8Kkwsw , wanna have something similar for myself
 
 https://www.youtube.com/watch?v=wLb9g_8r-mE , two kind of silicon valley
+
+https://www.youtube.com/watch?v=iZM_JmZdqCw , "You Are Not a Lottery Ticket"

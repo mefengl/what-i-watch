@@ -336,3 +336,5 @@ https://www.youtube.com/watch?v=3WPJJ8Kkwsw , wanna have something similar for m
 https://www.youtube.com/watch?v=wLb9g_8r-mE , two kind of silicon valley
 
 https://www.youtube.com/watch?v=iZM_JmZdqCw , "You Are Not a Lottery Ticket"
+
+https://www.youtube.com/watch?v=6KfUXpmtprc , setting washington, lincoln, and trump side by side is interesting

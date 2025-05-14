@@ -338,3 +338,5 @@ https://www.youtube.com/watch?v=wLb9g_8r-mE , two kind of silicon valley
 https://www.youtube.com/watch?v=iZM_JmZdqCw , "You Are Not a Lottery Ticket"
 
 https://www.youtube.com/watch?v=6KfUXpmtprc , setting washington, lincoln, and trump side by side is interesting
+
+https://www.youtube.com/watch?v=r7oBTMtfAz0 , each 5 minutes, 18 hours in a row

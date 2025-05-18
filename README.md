@@ -342,3 +342,7 @@ https://www.youtube.com/watch?v=6KfUXpmtprc , setting washington, lincoln, and t
 https://www.youtube.com/watch?v=r7oBTMtfAz0 , each 5 minutes, 18 hours in a row
 
 https://www.youtube.com/watch?v=mFE-Frsi6Uw , interesting another george hotz interview
+
+https://www.youtube.com/watch?v=GLGuA2qF3Kk , short but very interesting video about comma ai
+
+https://www.youtube.com/watch?v=KBeHmuRAJ7I , inspiring video about saas agent

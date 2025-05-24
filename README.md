@@ -346,3 +346,5 @@ https://www.youtube.com/watch?v=mFE-Frsi6Uw , interesting another george hotz in
 https://www.youtube.com/watch?v=GLGuA2qF3Kk , short but very interesting video about comma ai
 
 https://www.youtube.com/watch?v=KBeHmuRAJ7I , inspiring video about saas agent
+
+https://www.youtube.com/watch?v=6kGND-uZolY , peter thiel

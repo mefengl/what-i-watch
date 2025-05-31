@@ -350,3 +350,7 @@ https://www.youtube.com/watch?v=KBeHmuRAJ7I , inspiring video about saas agent
 https://www.youtube.com/watch?v=6kGND-uZolY , peter thiel
 
 https://www.youtube.com/watch?v=64lXQP6cs5M , very good video about current anthropic research
+
+https://www.youtube.com/watch?v=W1aGV4K3A8Y , same as above
+
+https://www.youtube.com/watch?v=zDmW5hJPsvQ , amazing video about claude code

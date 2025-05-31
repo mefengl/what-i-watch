@@ -348,3 +348,5 @@ https://www.youtube.com/watch?v=GLGuA2qF3Kk , short but very interesting video a
 https://www.youtube.com/watch?v=KBeHmuRAJ7I , inspiring video about saas agent
 
 https://www.youtube.com/watch?v=6kGND-uZolY , peter thiel
+
+https://www.youtube.com/watch?v=64lXQP6cs5M , very good video about current anthropic research

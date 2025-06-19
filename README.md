@@ -355,6 +355,8 @@ https://www.youtube.com/watch?v=W1aGV4K3A8Y , same as above
 
 https://www.youtube.com/watch?v=zDmW5hJPsvQ , amazing video about claude code
 
+## 2025-06
+
 https://www.youtube.com/watch?v=s4BTvj1ZVLM , worktree, one branch, one folder
 
 https://www.youtube.com/watch?v=zuZ2zaotrJs , ilya 2025
@@ -362,3 +364,5 @@ https://www.youtube.com/watch?v=zuZ2zaotrJs , ilya 2025
 https://www.youtube.com/watch?v=XyQ4ZTS5dGw , agentic engineering by mitchell
 
 https://www.youtube.com/watch?v=om2lIWXLLN4 , "the whole reason for scaling these models up was that the models weren’t smart enough to do RLHF on top of"
+
+https://www.youtube.com/watch?v=dmfaZcyshrs , tanner is also someone who really knows what he's doing

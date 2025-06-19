@@ -361,3 +361,4 @@ https://www.youtube.com/watch?v=zuZ2zaotrJs , ilya 2025
 
 https://www.youtube.com/watch?v=XyQ4ZTS5dGw , agentic engineering by mitchell
 
+https://www.youtube.com/watch?v=om2lIWXLLN4 , "the whole reason for scaling these models up was that the models weren’t smart enough to do RLHF on top of"

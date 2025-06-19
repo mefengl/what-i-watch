@@ -366,3 +366,5 @@ https://www.youtube.com/watch?v=XyQ4ZTS5dGw , agentic engineering by mitchell
 https://www.youtube.com/watch?v=om2lIWXLLN4 , "the whole reason for scaling these models up was that the models weren’t smart enough to do RLHF on top of"
 
 https://www.youtube.com/watch?v=dmfaZcyshrs , tanner is also someone who really knows what he's doing
+
+https://www.youtube.com/watch?v=hy9pNJMFfyM , same

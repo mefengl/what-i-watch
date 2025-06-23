@@ -368,3 +368,6 @@ https://www.youtube.com/watch?v=om2lIWXLLN4 , "the whole reason for scaling thes
 https://www.youtube.com/watch?v=dmfaZcyshrs , tanner is also someone who really knows what he's doing
 
 https://www.youtube.com/watch?v=hy9pNJMFfyM , same
+
+https://www.youtube.com/watch?v=qb644F-iE_s , found myself still undervaluing this video, it's actully somehow useful to understand china
+

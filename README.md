@@ -371,3 +371,5 @@ https://www.youtube.com/watch?v=hy9pNJMFfyM , same
 
 https://www.youtube.com/watch?v=qb644F-iE_s , found myself still undervaluing this video, it's actully somehow useful to understand china
 
+https://www.youtube.com/watch?v=VcOIz7tOBoM , did I kind of solve the try-catch problem?
+

@@ -373,3 +373,7 @@ https://www.youtube.com/watch?v=qb644F-iE_s , found myself still undervaluing th
 
 https://www.youtube.com/watch?v=VcOIz7tOBoM , did I kind of solve the try-catch problem?
 
+https://www.youtube.com/watch?v=eZ1mmqlq-mY , on second thought, this video is a good guide for reducing uncertainty
+
+https://www.youtube.com/watch?v=1NsSHkao-q4 ，known xstate
+

@@ -379,3 +379,5 @@ https://www.youtube.com/watch?v=1NsSHkao-q4 ，known xstate
 
 https://www.youtube.com/watch?v=vV7YgnPUxcU , interesting to listen to peter thiel talk about god
 
+https://www.youtube.com/watch?v=FASMejN_5gs , neuralink's latest progress
+

@@ -388,3 +388,5 @@ https://www.youtube.com/watch?v=FASMejN_5gs , neuralink's latest progress
 https://www.youtube.com/watch?v=Lue8K2jqfKk , amazingly good, from claude code creator
 
 https://www.youtube.com/watch?v=8kMaTybvDUw , raises many really good points about content engineering
+
+https://www.youtube.com/watch?v=gHtkICfmze4 , "everything counts", motivation video

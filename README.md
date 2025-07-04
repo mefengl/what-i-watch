@@ -8,6 +8,8 @@ https://www.youtube.com/watch?v=M-ZH3psUbfU
 
 https://www.youtube.com/watch?v=0rlatwbnvmw
 
+https://www.youtube.com/watch?v=Lue8K2jqfKk
+
 ## 2023-01
 
 10
@@ -381,3 +383,8 @@ https://www.youtube.com/watch?v=vV7YgnPUxcU , interesting to listen to peter thi
 
 https://www.youtube.com/watch?v=FASMejN_5gs , neuralink's latest progress
 
+## 2025-07
+
+https://www.youtube.com/watch?v=Lue8K2jqfKk , amazingly good, from claude code creator
+
+https://www.youtube.com/watch?v=8kMaTybvDUw , raises many really good points about content engineering

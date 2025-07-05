@@ -397,6 +397,6 @@ https://www.youtube.com/watch?v=MqC3tudPH6w , a nice expansion after years since
 
 https://www.youtube.com/watch?v=rysgxl35EGc , small example of how mitchell became mitchell
 
-https://www.youtube.com/watch?v=vMzToDQPgH4&t=6s , learned more about mitchell's childhood, quite interesting to see where the engineering mindset started
+https://www.youtube.com/watch?v=vMzToDQPgH4&t=6s , mitchell's journey from neopets to hashicorp founder
 
 https://www.youtube.com/watch?v=IrGYUq1mklk , liquid glass is good actually

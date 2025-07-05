@@ -389,4 +389,12 @@ https://www.youtube.com/watch?v=Lue8K2jqfKk , amazingly good, from claude code c
 
 https://www.youtube.com/watch?v=8kMaTybvDUw , raises many really good points about content engineering
 
-https://www.youtube.com/watch?v=gHtkICfmze4 , "everything counts", motivation video
+https://www.youtube.com/watch?v=gHtkICfmze4 , "everything counts", motivational video
+
+https://www.youtube.com/watch?v=8hQG7QlcLBk , a good list of test patterns
+
+https://www.youtube.com/watch?v=MqC3tudPH6w , a nice expansion after years since the last one
+
+https://www.youtube.com/watch?v=rysgxl35EGc , small example of how mitchell became mitchell
+
+https://www.youtube.com/watch?v=IrGYUq1mklk , liquid glass is good actually

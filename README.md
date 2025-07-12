@@ -400,3 +400,8 @@ https://www.youtube.com/watch?v=rysgxl35EGc , small example of how mitchell beca
 https://www.youtube.com/watch?v=vMzToDQPgH4&t=6s , mitchell's journey from neopets to hashicorp founder
 
 https://www.youtube.com/watch?v=IrGYUq1mklk , liquid glass is good actually
+
+https://www.youtube.com/watch?v=8rABwKRsec4 , "if you don't have a specification, you just have a vague idea"
+
+https://www.youtube.com/watch?v=vagyIcmIGOQ , know dhh again
+

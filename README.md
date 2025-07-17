@@ -104,7 +104,7 @@ https://www.youtube.com/watch?v=tVWWp1PqDus , funny
 
 https://www.youtube.com/watch?v=6sUwRiIncKU , a conversation with a lot of information, and also quite exciting
 
-https://www.youtube.com/watch?v=y8OI53Xylfo , talk of CEO of Nvida
+https://www.youtube.com/watch?v=y8OI53Xylfo , talk of CEO of Nvidia
 
 ## 2023-11
 
@@ -242,7 +242,7 @@ https://www.youtube.com/watch?v=UgZpb-v2jm8 ,  a good rebuttal to the "green an
 
 https://www.youtube.com/watch?v=wawMjJUCMVw , charismatic scientist
 
-https://www.youtube.com/watch?v=wYeVne3aRow , nice video explaining solid cache's benifits and ideas behind it
+https://www.youtube.com/watch?v=wYeVne3aRow , nice video explaining solid cache's benefits and ideas behind it
 
 https://www.youtube.com/watch?v=Gm0t-kAsHuY , always so inspiring
 
@@ -274,7 +274,7 @@ https://www.youtube.com/watch?v=YYD3aZatWRo , hotz's factorio speedrun
 
 https://www.youtube.com/watch?v=J8FdIbUq4SI , xqc's factorio speedrun is so funny, spaghetti can somehow works pretty well
 
-https://www.youtube.com/watch?v=79T4Gp0RlfY , fastest factorio speedrun give me so much inspirition
+https://www.youtube.com/watch?v=79T4Gp0RlfY , fastest factorio speedrun give me so much inspiration
 
 https://www.youtube.com/watch?v=fP-371MN0Ck , showed me again why learning from the ground up matters
 
@@ -317,7 +317,7 @@ https://www.youtube.com/watch?v=7Qe2rzT0hZ8 , the quality of this video, the com
 
 https://www.youtube.com/watch?v=v2q3yPwEo5w , gives a lot of new information about 2020s peter thiel
 
-https://www.youtube.com/watch?v=Ha_cHQxGFMI , explaned a lot of things about ali g and borat
+https://www.youtube.com/watch?v=Ha_cHQxGFMI , explained a lot of things about ali g and borat
 
 https://www.youtube.com/watch?v=9iqn1HhFJ6c , captures ilya charm in a strange way
 
@@ -371,7 +371,7 @@ https://www.youtube.com/watch?v=dmfaZcyshrs , tanner is also someone who really 
 
 https://www.youtube.com/watch?v=hy9pNJMFfyM , same
 
-https://www.youtube.com/watch?v=qb644F-iE_s , found myself still undervaluing this video, it's actully somehow useful to understand china
+https://www.youtube.com/watch?v=qb644F-iE_s , found myself still undervaluing this video, it's actually somehow useful to understand china
 
 https://www.youtube.com/watch?v=VcOIz7tOBoM , did I kind of solve the try-catch problem?
 

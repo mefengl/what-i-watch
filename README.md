@@ -405,3 +405,4 @@ https://www.youtube.com/watch?v=8rABwKRsec4 , "if you don't have a specification
 
 https://www.youtube.com/watch?v=vagyIcmIGOQ , know dhh again
 
+https://www.youtube.com/watch?v=477qF6QNSvc , know tim sweeney

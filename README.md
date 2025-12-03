@@ -476,3 +476,9 @@ https://www.youtube.com/watch?v=dbEYe65eDdw , very good video explaining the ear
 29
 
 https://www.youtube.com/watch?v=BWvThjrjTmw , know eth
+
+## 2025-12
+
+03
+
+https://www.youtube.com/watch?v=mfv0V1SxbNA , know linus

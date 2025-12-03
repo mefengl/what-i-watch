@@ -482,3 +482,7 @@ https://www.youtube.com/watch?v=BWvThjrjTmw , know eth
 03
 
 https://www.youtube.com/watch?v=mfv0V1SxbNA , know linus
+
+04
+
+https://www.youtube.com/watch?v=yeCuasjxsWk , know gaben

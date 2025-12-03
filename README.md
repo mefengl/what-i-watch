@@ -406,3 +406,73 @@ https://www.youtube.com/watch?v=8rABwKRsec4 , "if you don't have a specification
 https://www.youtube.com/watch?v=vagyIcmIGOQ , know dhh again
 
 https://www.youtube.com/watch?v=477qF6QNSvc , know tim sweeney
+
+https://www.youtube.com/watch?v=I845O57ZSy4 , know john carmack
+
+https://www.youtube.com/watch?v=qDDOy90V4Jo , know zuckerberg
+
+## 2025-08
+
+07
+
+https://www.youtube.com/watch?v=M9Qnms_W3Ys , some deep thought about web framework
+
+15
+
+https://www.youtube.com/watch?v=pNDQGI4RFzo , know gmv
+
+25
+
+https://www.youtube.com/watch?v=du_KEfc9Z-I , yet another video asking MrBeast a lot of random questions
+
+https://www.youtube.com/watch?v=RNhiT-SmR1Q , move that can't screenshot, so cool
+
+https://www.youtube.com/watch?v=NRajmCL_jOI , only see it when it moves, called "motion extraction", cool
+
+https://www.youtube.com/watch?v=oGM3CPXMelA , not bad video about doing business in china
+
+## 2025-09
+
+01
+
+https://www.youtube.com/watch?v=B2482h_TNwg , know euv
+
+https://www.youtube.com/watch?v=RNZ5qylG3qk , amazing power from this poem and this voice
+
+https://www.youtube.com/watch?v=BR9tfe9B2ac , nice remix of boots
+
+https://www.youtube.com/watch?v=aiYnSAHGi1A , kind of interesting to see MrBeast's view on a field he ignores which is streaming
+
+https://www.youtube.com/watch?v=mnF3sUfyNRI , an inside view of Beast company
+
+05
+
+https://www.youtube.com/watch?v=gcwzWzC7gUA , dhh is continuing to simplify
+
+10
+
+https://www.youtube.com/watch?v=M0au92yebLQ , iphone air is beautiful
+
+13
+
+https://www.youtube.com/watch?v=4KvbVq3Eg5w , the first example is so convincing, i know about composition now
+
+## 2025-10
+
+03
+
+https://www.youtube.com/watch?v=qjPH9njnaVU , know pavel durov
+
+04
+
+https://www.youtube.com/watch?v=gcWTcAbyJZE , "if you care, you care", know The Binding of Isaac
+
+## 2025-11
+
+28
+
+https://www.youtube.com/watch?v=dbEYe65eDdw , very good video explaining the earthquake
+
+29
+
+https://www.youtube.com/watch?v=BWvThjrjTmw , know eth

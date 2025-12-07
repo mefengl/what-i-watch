@@ -486,3 +486,8 @@ https://www.youtube.com/watch?v=mfv0V1SxbNA , know linus
 04
 
 https://www.youtube.com/watch?v=yeCuasjxsWk , know gaben
+
+07
+
+https://www.youtube.com/watch?v=qyH3NxFz3Aw , know hinton, he really says a lot of things in a profound way
+

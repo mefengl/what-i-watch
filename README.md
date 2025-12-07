@@ -491,3 +491,5 @@ https://www.youtube.com/watch?v=yeCuasjxsWk , know gaben
 
 https://www.youtube.com/watch?v=qyH3NxFz3Aw , know hinton, he really says a lot of things in a profound way
 
+https://www.youtube.com/watch?v=jrK3PsD3APk , know hinton again
+

@@ -493,3 +493,7 @@ https://www.youtube.com/watch?v=qyH3NxFz3Aw , know hinton, he really says a lot 
 
 https://www.youtube.com/watch?v=jrK3PsD3APk , know hinton again
 
+16
+
+https://www.youtube.com/watch?v=eyTf7y3ityk , that's another way to do things
+

@@ -497,3 +497,7 @@ https://www.youtube.com/watch?v=jrK3PsD3APk , know hinton again
 
 https://www.youtube.com/watch?v=eyTf7y3ityk , that's another way to do things
 
+20
+
+https://www.youtube.com/watch?v=SUff1JxxCg4 , it does matter
+

@@ -501,3 +501,9 @@ https://www.youtube.com/watch?v=eyTf7y3ityk , that's another way to do things
 
 https://www.youtube.com/watch?v=SUff1JxxCg4 , it does matter
 
+
+## 2026-01
+
+13
+
+https://www.youtube.com/watch?v=3ezEDkuo8F4 , video title definitely comes from mrbeast

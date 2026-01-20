@@ -507,3 +507,7 @@ https://www.youtube.com/watch?v=SUff1JxxCg4 , it does matter
 13
 
 https://www.youtube.com/watch?v=3ezEDkuo8F4 , video title definitely comes from mrbeast
+
+20
+
+https://www.youtube.com/watch?v=ZJW3wAo5nxI , the classify and layer in this short video is very inspiring

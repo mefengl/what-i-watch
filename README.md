@@ -511,3 +511,7 @@ https://www.youtube.com/watch?v=3ezEDkuo8F4 , video title definitely comes from 
 20
 
 https://www.youtube.com/watch?v=ZJW3wAo5nxI , the classify and layer in this short video is very inspiring
+
+21
+
+https://www.youtube.com/watch?v=ZSM2uFnJ5bs , know new tobi

@@ -515,3 +515,8 @@ https://www.youtube.com/watch?v=ZJW3wAo5nxI , the classify and layer in this sho
 21
 
 https://www.youtube.com/watch?v=ZSM2uFnJ5bs , know new tobi
+
+31
+
+https://www.youtube.com/watch?v=dxRB4sdbIcw , know "Zdzislaw Beksinski", amazing artist
+

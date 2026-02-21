@@ -520,3 +520,9 @@ https://www.youtube.com/watch?v=ZSM2uFnJ5bs , know new tobi
 
 https://www.youtube.com/watch?v=dxRB4sdbIcw , know "Zdzislaw Beksinski", amazing artist
 
+
+## 2026-02
+
+21
+
+https://www.bilibili.com/video/BV1rBcsz4Ee6 , know BERSERK
